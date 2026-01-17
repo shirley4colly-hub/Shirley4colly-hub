@@ -47,8 +47,8 @@ To grow as a **Data Analyst / Junior Data Scientist**, applying analytics and AI
 
 
 ## Let’s Connect
-- LinkedIn: *(to be added once created)*  
-- Email: *(shirley4colly@gmail.com)*  
+- LinkedIn: https://www.linkedin.com/in/onyinye-shirley-odunze-akasiugwu-868068371/ 
+- Email: shirley4colly@gmail.com  
 
 ⭐ Feel free to explore my repositories and connect with me!
 
